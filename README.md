@@ -5,9 +5,9 @@ This is a community with the purpose of share anything interesting about *El Má
 
 ### Did you know? 
 * Charly has Absolute pitch.
-* At the age of 12 he had the grade of professor in piano.
-* He leaves the classical music for rock because ... The Beatles!.
-* His favorite song of the album "Please Please Me" of The Beatles is There's a Place.
+* At the age of 12 he was as good as a piano professor.
+* He left classical music for rock because of ... The Beatles!.
+* His favorite song of the album "Please Please Me" of The Beatles is "There's a Place."
 * In a concert, when he was singing Botas Locas he was arrested by the cops. In a part of the song he says "Si ellos son la patria yo soy extranjero" but in the interrogatory he said that he says  "Si ellos son la patria, yo me juego entero", getting rid of charges.
 
 ### Documentaries
@@ -15,6 +15,6 @@ This is a community with the purpose of share anything interesting about *El Má
 * [Charly Garcia - Historias Verdaderas](https://www.youtube.com/watch?v=UFCWLfl2hiQ) [50:32]
 
 ### Interpretation
-In this section we can share our *interpretation* of the songs of Charly.
+In this section we can share our *interpretation* of Charly's songs.
 #### [Cuchillos] (https://www.youtube.com/watch?v=UvIIUtDgIk8)
 * I think that this is the view of Charly about the relationship with his fans,always faithfuls despite his addictions,problems.
